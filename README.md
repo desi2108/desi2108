@@ -11,6 +11,7 @@ my profile :
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ..
 - 📫 How to reach me: Instagram : Evoltneliss or Wattpadd : Winterillous
+- [LinkedIn](https://www.linkedin.com/in/desi-sunyahni).
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Introvert, Thingker, and Like Art
 
