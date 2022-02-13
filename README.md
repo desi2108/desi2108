@@ -1,9 +1,9 @@
 ### Hi there 👋
 
 
-**desi2108/desi2108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**My Name is Desi Sunyahni
 
-Here are some ideas to get you started:
+my profile :
 
 - 🔭 I’m currently studying on Sebelas Maret University
 - 🌱 I’m currently learning Electrical Engineering
